@@ -7,3 +7,5 @@ Joffrey Baratheon was the one to do Ned in, but his story was only about to bein
 Joffrey later dies from being posisoned at his own wedding
 
 Sansa flees with Peter Baelish for fear of being accused and punished for the death of Joeffrey.
+
+Ceresi accuses Tyrion of killing Joffrey
